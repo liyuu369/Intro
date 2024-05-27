@@ -1,3 +1,3 @@
 # liyuu369
 🤓
-Pharmacist transitioned into data & business anlyst, still exploring the beauty of data world day by day
+Pharmacist transitioned into data & business analyst, continuing to explore the beauty of data world
